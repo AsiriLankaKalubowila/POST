@@ -20,3 +20,5 @@ Absolutely. 😎
 * 🏆 Status: **LEVEL COMPLETED**
 
 #GitHub #ChromeDino #NoInternetGame #DinosaurGame #RetroGaming #PixelArt #GameOver #TheEnd #HighScore #OfflineGaming #Nostalgia #CodingLife
+<img width="3240" height="4050" alt="dinosaur game" src="https://github.com/user-attachments/assets/537f1d65-5da4-4d66-a5a5-ab8833ac103e" />
+
